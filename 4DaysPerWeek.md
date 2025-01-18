@@ -85,5 +85,5 @@ This training program is designed to help you build strength and endurance. It c
   - Keep your bedroom cool and dark for optimal rest.
 ---
 
-Follow the program as outlined, ensuring you are progressively increasing weights and run intensity.
+Follow the program as outlined, ensuring you are progressively increasing weights and run intensity.  
 Good luck with your training! Stay consistent and focused to achieve your goal!
